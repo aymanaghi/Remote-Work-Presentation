@@ -2,7 +2,7 @@
 
 # 🚀 The Benefits & Challenges of Remote Work  
 
-👋 **Hey, I'm Stinger!**  
+👋 **Hey, I'm Ayman AKA Stinger!**  
 Welcome to my presentation on how **remote work** has changed jobs forever. 🌍💻  
 
 ---

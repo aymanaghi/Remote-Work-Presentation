@@ -36,3 +36,13 @@ Welcome to my presentation on how **remote work** has changed jobs forever. 🌍
 🔹 Remote work is **here to
 
 
+
+
+
+## Happy giraffe
+
+![openart-image_aHOcacBJ_1741832010441_raw](https://github.com/user-attachments/assets/a145b0b8-81b4-40e1-8682-592b563bd573)
+
+
+
+
